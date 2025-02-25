@@ -30,6 +30,8 @@ Success! Now the client has:
 ## 🚀 Ready to boost your sales?  
 It's time to **solve your problem** and make more money! 💸  
 Give it a shot and drop me a message:  
-📩 **abdullahyonus616@gmail.com**  
+
+📩 **Email:** abdullahyonus616@gmail.com  
+💬 **WhatsApp:** [+201122026970](https://wa.me/201122026970)  
 
 Let's make your business thrive! 🚀🔥  
